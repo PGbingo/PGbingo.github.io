@@ -24,6 +24,6 @@ With online bingo, you spend less, and have the opportunity to win much more, an
 
 Of course, there are advantages to paying to play some bingo games online, but the cost for what you actually get, often pales in comparison to the costs and possible payouts experienced in your classic bingo hall. It’s quite common for sites to offer tons of free plays and other bonuses upon making a very small deposit. And, the best part is, people are actually winning nice jackpots from these sites, whether they’ve made a deposit or not! 
 
-Move Over Granny
+<b>Move Over Granny</bb>
 
-Sorry, grandma, this is not your game anymore. To find great bingo games online, mobile bingo sites, great bingo bonuses, and other online resources, please click here: http://www.pgbingo.com. To find and play free bingo games, please visit: http://www.pgbingo.com/free-bingo-sites/ today! 
+Sorry, grandma, this is not your game anymore. To find great bingo games online, mobile bingo sites, great bingo bonuses, and other online resources, please click here: http://www.pgbingo.com. To find and play free bingo games, please visit: http://www.pgbingo.com/free-bingo-sites/ today!
